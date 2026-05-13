@@ -1,4 +1,4 @@
-# 
+# elite pump.fun sniper bot | proxy-transactions + blockchain-scanning offers the most advanced pump.fun sniper bot, with proxy-transactions and blockchain-scanning. Ideal for
 
 
 
